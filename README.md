@@ -2,5 +2,5 @@
 happy time judjud
 bam
 peang
-printsud
+Junya Jantaut
 sakon prapunkeaw
