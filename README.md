@@ -1,4 +1,4 @@
 bam
-peang
+peang Rungtiwa
 Junya Jantaut
 sakon prapunkeaw
