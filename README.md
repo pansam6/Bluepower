@@ -1,6 +1,4 @@
-# Bluepower
-happy time 
-พรรณธิดา 
-รุ่งทิวา
-จรรยา
-สกนธ์
+bam
+peang
+Junya Jantaut
+sakon prapunkeaw
